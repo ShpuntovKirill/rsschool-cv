@@ -3,7 +3,9 @@
 -------------------
 Belarus, Minsk                   
 (+375) 29 104 72 52
+
 ks090192@gmail.com
+
 [@KirillShpuntov](https://t.me/KirillShpuntov)
 
 ------------------- 
